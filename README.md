@@ -2,9 +2,9 @@ Cherukuri.Dharani
 ============
 
 -------------------     ----------------------------
-E-Mail                       dharanicherukuri999@gmail.com
-Mobile No                    6301929186
-MyCountry                    India
+-E-Mail                       dharanicherukuri999@gmail.com
+-Mobile No                    6301929186
+-MyCountry                    India
 -------------------     ----------------------------
 
 Education
